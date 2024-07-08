@@ -6,3 +6,4 @@
 
 ## Latest Post
 - [omazakyrotosspace](https://omazakyrotosspace.quora.com/Why-has-the-console-release-of-Cities-Skylines-2-been-delayed-indefinitely-1?prompt_topic_bio=1)
+- [Podcast](https://open.spotify.com/show/1njedjdxSyX02LsNUXRlxp)
